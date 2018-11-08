@@ -18,16 +18,22 @@ Benefits, barriers, treatment, reccomended, unknowledgable, information, heart d
 
 https://search.proquest.com/docview/232992020/9E81786B37EB47FEPQ/4?accountid=130237
 
+Key words:
+
 Body image, psychological, bone density
 
 3. Menu labeling
 
 https://search.proquest.com/docview/1795923578/5ED02A0F09404738PQ/5?accountid=130237
 
+Key words:
+
 Benefits, research, requirment, 
 
 4. Eating disorders in athletes
 
 https://search.proquest.com/docview/213039119/5B7BC59EC7E244A5PQ/1?accountid=130237
+
+Key words: 
 
 Females, leanness, pressures,
